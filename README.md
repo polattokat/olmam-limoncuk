@@ -1,1 +1,1 @@
-# olmam-limoncuk
+# olmamiş-limoncuk
